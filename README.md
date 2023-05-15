@@ -1,0 +1,1 @@
+# lancamentoestrategico_personalizado
